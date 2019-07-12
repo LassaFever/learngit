@@ -1,2 +1,2 @@
-git is what?
-sry i don't know~
+git is a great thing
+yup~~
